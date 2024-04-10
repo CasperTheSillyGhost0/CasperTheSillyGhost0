@@ -10,12 +10,15 @@
 - Read Dead Redemption (1&2)
 - Stardew Valley
 - HLVRAI
-
 <br>
 
-**Pronouns:**  
- They/She/He (no pref) 
-<br> <br>
+  **Hobbies:** <br>
+- Drawing
+- Writing
+- Electric Guitar
+- Blah blah blah  
+
+<br>
 
   **Socials:**
  - Discord: casperthesillyghost <br>
