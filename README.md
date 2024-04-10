@@ -14,7 +14,7 @@
 <br>
 
 **Pronouns:**
-  She/he/they (no pref
+ They/She/He (no pref) 
 <br> <br>
 
   **Socials:**
