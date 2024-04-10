@@ -19,4 +19,4 @@
 
   **Socials:**
  - Discord: casperthesillyghost <br>
-  -Tumblr: https://www.tumblr.com/blog/ghostlygoober
+ - Tumblr: https://www.tumblr.com/blog/ghostlygoober
