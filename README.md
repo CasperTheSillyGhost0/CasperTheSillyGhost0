@@ -18,5 +18,5 @@
 <br> <br>
 
   **Socials:**
- - Discord: casperthesillyghost
+ - Discord: casperthesillyghost <br>
   -Tumblr: https://www.tumblr.com/blog/ghostlygoober
