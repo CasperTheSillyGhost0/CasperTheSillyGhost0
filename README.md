@@ -10,6 +10,8 @@
 - Read Dead Redemption (1&2)
 - Stardew Valley
 - HLVRAI
+- PJSK
+- and more :3
 <br>
 
   **Hobbies:** <br>
