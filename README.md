@@ -7,10 +7,11 @@
 - Ghost(Band)
 - The Walking Dead
 - Detroit Become Human
-- Read Dead Redemption (1&2)
+- Red Dead Redemption (1&2)
 - Stardew Valley
 - HLVRAI
 - PJSK
+- Identity V (ask for my user :3) 
 - and more :3
 <br>
 
