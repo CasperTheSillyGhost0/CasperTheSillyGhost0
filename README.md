@@ -11,7 +11,10 @@
 - Stardew Valley
 - HLVRAI
 - PJSK
-- Identity V (ask for my user :3) 
+- Identity V (ask for my user I suck)
+- Fallout Series
+- House MD (watching anyway)
+- Honkai Star Rail
 - and more :3
 <br>
 
