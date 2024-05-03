@@ -1,4 +1,4 @@
- Hi, I’m Casper
+ Hi, I’m Casper sorry if I'm awkward sometimes I have trouble talking to people at first
 -          
 **Interests:**
 - STAR TREK!! <3
@@ -25,3 +25,4 @@
   **Socials:**
  - Discord: casperthesillyghost <br>
  - Tumblr: https://www.tumblr.com/blog/ghostlygoober
+ - don't follow my Tumblr if I know you irl it's my silly internet safe space kinda deal /gen
