@@ -30,3 +30,8 @@
  - Discord: casperthesillyghost <br>
  - Tumblr: https://www.tumblr.com/blog/ghostlygoober
  - don't follow my Tumblr if I know you irl it's my silly internet safe space kinda deal /gen
+
+**Here's some of my art :D** 
+I do commisions for money on cashapp/robux just contact me on discord for more info
+ - ![image](https://github.com/CasperTheSillyGhost0/CasperTheSillyGhost0/assets/162378388/1d19c501-bbd3-4e97-a258-231db5f4ae2b)
+
