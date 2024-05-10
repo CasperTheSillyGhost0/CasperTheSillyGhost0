@@ -14,8 +14,8 @@
 - Identity V (ask for my user I suck)
 - Fallout Series
 - House MD (watching anyway)
-- Honkai Star Rail
-- and more :3
+- Slipknot, Linkin Park, Slayer, Tyler The Creator, Motley Crue, uhhh Sleep Token, Will Wood, and other bands
+- and more!!
 <br>
 
   **Hobbies:** <br>
@@ -32,5 +32,5 @@
  - don't follow my Tumblr if I know you irl it's my silly internet safe space kinda deal /gen
 
 **Here's some of my art :D** 
-I do commisions for money on cashapp/robux just contact me on discord for more info
+I do commisions for money on cashapp/robux just contact me on discord for more info (check tumblr for more)
 ![image](https://github.com/CasperTheSillyGhost0/CasperTheSillyGhost0/assets/162378388/09c38d89-fac7-4717-9e93-a788ff034e39)
