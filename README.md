@@ -33,5 +33,4 @@
 
 **Here's some of my art :D** 
 I do commisions for money on cashapp/robux just contact me on discord for more info
- - ![image](https://github.com/CasperTheSillyGhost0/CasperTheSillyGhost0/assets/162378388/1d19c501-bbd3-4e97-a258-231db5f4ae2b)
-
+![image](https://github.com/CasperTheSillyGhost0/CasperTheSillyGhost0/assets/162378388/09c38d89-fac7-4717-9e93-a788ff034e39)
