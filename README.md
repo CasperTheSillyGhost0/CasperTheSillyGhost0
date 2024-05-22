@@ -2,6 +2,7 @@
 -          
 **Interests:**
 - STAR TREK!! <3
+- Star Wars
 - The Stanley Parable
 - Doctor Who
 - Ghost(Band)
@@ -12,9 +13,8 @@
 - HLVRAI
 - PJSK
 - Identity V (ask for my user I suck)
-- Fallout Series
 - House MD (watching anyway)
-- Slipknot, Linkin Park, Slayer, Tyler The Creator, Motley Crue, uhhh Sleep Token, Will Wood, and other bands
+- Slipknot, Linkin Park, Slayer, Tyler The Creator, Motley Crue, uhhh Sleep Token, Will Wood, and other bands (you can recommend me music) 
 - and more!!
 <br>
 
@@ -31,6 +31,5 @@
  - Tumblr: https://www.tumblr.com/blog/ghostlygoober
  - don't follow my Tumblr if I know you irl it's my silly internet safe space kinda deal /gen
 
-**Here's some of my art :D** 
-I do commisions for money on cashapp/robux just contact me on discord for more info (check tumblr for more)
-![image](https://github.com/CasperTheSillyGhost0/CasperTheSillyGhost0/assets/162378388/09c38d89-fac7-4717-9e93-a788ff034e39)
+**Check tumblr for my art:D** 
+I do commisions for money on cashall just contact me on discord for more info (check tumblr for more) I also do requests for fandom characters. (just not ocs) 
